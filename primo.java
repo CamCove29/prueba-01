@@ -11,10 +11,55 @@ primaaaaaaaaaaaaaaaaaaaaaaaa
 p r i m a s e 2 0 t e a }
 }
 jesus gadiel velarde tipte
+ergegerr
+ergreterg
 
 
 
-        vklzdxjfksdgk,dal
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+        erge
+                ergerer
+
+                erger
+                        
+        vklzdxjfksergerdgk,dal
 askjsjdfiosfk
         ajdioadja<
 
@@ -23,3 +68,9 @@ askjsjdfiosfk
                 se lo gra
 jejeje
         jejejejejejejejejejejejjejejjejejejejejejerjejejjejjejejjejeejejjejejeje
+ewkfjgbfrgerhovgyufgiue
+                kcnokcqjovjvoqavouewdnojnousnvofdwnvwodjvnwrdoujfnewrpfnewroj neovjwr
+                        jvojsvosvoujvubsouvsovsjvbsnvjosdjsndjfkewcpjnjoovnwdouodcnodjcvnowdjvnwdocvnweocjnwdovjnwdojndwvousvbuworv
+vwiovnowfvnwfvnw
+                                vwbvwfnvow´vwv´wfovnowfv
+vnwovwffvn}
